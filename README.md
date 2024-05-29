@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @DEEKSHA-De
 - 👀 I’m interested in Software Developing,web Developing...
-- 🌱 I’m currently learning MCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me deekshadevadiga121@gmail.com
 
